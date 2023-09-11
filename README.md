@@ -2,4 +2,4 @@
 
  Icons that can be used in malware. :)
 
-T.me/Galaxy_deve
+[More](https://T.me/Galaxy_deve)
